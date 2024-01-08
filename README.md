@@ -6,7 +6,7 @@ Full-Stack Developer
 
 I am a Enthusiastic learner , which prompted me to consistently learn, update and develop wide skillsets in-line with modern industry requirements
 
-* 🌍  I'm based in Hyderabad
+* 🌍  I'm based in London
 * ✉️  You can contact me at [kandukurisandesh1998@gmail.com](mailto:kandukurisandesh1998@gmail.com)
 * 🤝  I'm open to collaborating on Projects relevant to my skills
 
